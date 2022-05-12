@@ -5,7 +5,6 @@
 联系方式
 邮件:2188990640@qq.com
 qq:2188990640
-微信:17263488372
 
 Hi I'm @klfnjc2
 I am interested in software cracking
@@ -14,4 +13,3 @@ Now a high school student, I want to make friends with people who share the same
 Contact:
 Mail:2188990640@qq.com
 qq:2188990640
-WeChat: 17263488372
